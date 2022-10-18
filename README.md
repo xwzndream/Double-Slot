@@ -18,7 +18,7 @@ AppInfo
 
 ![e501dc6647eace268c78f456c49e158](https://user-images.githubusercontent.com/37922559/168203794-b123619f-7668-411f-a858-4098c7acd0a9.png)
 
-The most popular casual betting game in 2022!
+The most popular casual betting game in 2022! 
 
 Play your favorite 49999 slot machine, bet on the lucky wheel, and unique rocket flight games. Guess red and green is simple and fun. More exciting games are waiting for you to discover.
 
