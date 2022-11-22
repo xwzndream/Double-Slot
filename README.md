@@ -15,10 +15,7 @@ Thank you again!
 Double-Crash technical support
 AppInfo
 
-
-![2208_1](https://user-images.githubusercontent.com/36095568/203257273-8660818c-0e5a-4571-bdb4-e06ec2c0d16d.png)
-![2208_2](https://user-images.githubusercontent.com/36095568/203257316-b8c44531-cbac-4869-82f1-daff0d1c302a.png)
-![2208_3](https://user-images.githubusercontent.com/36095568/203257322-b18ff73f-386d-46d4-a6d2-82e9e5626cc8.png)
+![Uploading WeChat6239a986eed0190b8657fc1a3394c3ff.png…]()
 
 
 The most popular free casual betting game in 2022!
