@@ -1,7 +1,7 @@
-# Double-Slot technical support
+# Double-Crash technical support
 
 
-Double-Slot technical support
+Double-Crash technical support
 Thanks for using our app!
 
 
@@ -12,23 +12,24 @@ e-mail address: tikunga01@gmail.com
 Thank you again!
 
 
-Double-Slot technical support
+Double-Crash technical support
 AppInfo
 
 
-![e501dc6647eace268c78f456c49e158](https://user-images.githubusercontent.com/37922559/168203794-b123619f-7668-411f-a858-4098c7acd0a9.png)
+![2208_1](https://user-images.githubusercontent.com/36095568/203257273-8660818c-0e5a-4571-bdb4-e06ec2c0d16d.png)
+![2208_2](https://user-images.githubusercontent.com/36095568/203257316-b8c44531-cbac-4869-82f1-daff0d1c302a.png)
+![2208_3](https://user-images.githubusercontent.com/36095568/203257322-b18ff73f-386d-46d4-a6d2-82e9e5626cc8.png)
 
-The most popular casual betting game in 2022! 
 
-Play your favorite 49999 slot machine, bet on the lucky wheel, and unique rocket flight games. Guess red and green is simple and fun. More exciting games are waiting for you to discover.
+The most popular free casual betting game in 2022!
 
-Disclaimer - This game is only for adult audience entertainment. It does not provide real gold and silver gambling, nor the opportunity to win real gold and silver or prizes based on free casino and slot machine games. Playing for the sake of success in this game does not mean that you will win in real money gambling in the future
+Unique rocket flight game, simple and fun, more exciting games for you to find.
+
+Why wait? Win now! Play when you are bored and win more!
 
 ## Contact Us
 
 App E-mail address: tikunga01@gmail.com
-
- 
 
 Frequently asked questions and answers
 ### Q: How to download and install?
@@ -53,6 +54,6 @@ A: Can send mail to tikunga01@gmail.com. Contact us for
 
 ### Q: How to modify a nickname?
 
-A: After opening the APP and logging in, find the top right corner of the user interface and click the modify icon to modify the avatar and nickname, enter personal information and make changes
+A: After opening the APP and logging in, find the top left corner of the user interface and click the setting icon to modify the avatar and nickname, enter personal information and make changes
 
 More questions can be sent to tikunga01@gmail.com. Contact us for
